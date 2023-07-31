@@ -1,0 +1,5 @@
+- Ola, sou o Batatinha
+- Sou de Cascavel/Pr
+- 14y
+- @Bizin_2711
+- Natus Vincere
